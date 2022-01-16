@@ -1,0 +1,1 @@
+Once upon a time, there lived a poor couple in a small village situated at the outskirts of a city. They had two children, a boy and a girl. They worked very hard to make both ends meet. With great difficulty, they managed to bring up their children.    
